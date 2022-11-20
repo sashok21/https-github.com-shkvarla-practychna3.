@@ -1,1 +1,0 @@
-# https-github.com-shkvarla-practychna3.
